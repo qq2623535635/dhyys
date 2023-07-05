@@ -5,5 +5,5 @@
 https://wwfe.lanzoub.com/imw27114t6uh
 密码:cgbp
 
-[](https://github.com/qq2623535635/dhyys/blob/main/pic1.png)
-[](https://github.com/qq2623535635/dhyys/blob/main/pic2.png)
+![1](https://github.com/qq2623535635/dhyys/blob/main/pic1.png)
+![2](https://github.com/qq2623535635/dhyys/blob/main/pic2.png)
